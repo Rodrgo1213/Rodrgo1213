@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Estudiar software
 - 🌱 I’m currently learning ...Software
 - 💞️ I’m looking to collaborate on ...Mestros de sotfware 
-- 📫 How to reach me ...
+- 📫 How to reach me ...ig (rodrigo_t_z)
 - 😄 Pronouns: ...Rodrigo
 - ⚡ Fun fact: ...
 
